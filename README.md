@@ -1,3 +1,5 @@
+pre-seed start up waiting for an investor
+
 Tales & Realms
 
 Journey beyond reality
