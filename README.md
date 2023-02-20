@@ -7,17 +7,17 @@ Journey beyond reality
 Pitch Deck(I'm still editing it but you can have a look)
 https://docs.google.com/presentation/d/1--ozkkmmmEBy1IGRsgn_098aRE3A1e5D8fO9vB3ejJs/
 
-Business Type: 
+Business Model: 
 * B2C
 * B2B
 * B2G
-* B2B2B2C
+* B2B2C
 
 Tales & Realms is an upcoming startup that specializes in creating unique and engaging content that takes customers on a journey beyond reality. Our products and services will cater to multiple customer segments, including:
 * B2C: We will offer a range of products, including comic books, 3D printed figures, NFTs, and animation movies that appeal to individuals who are passionate about immersive storytelling.
 * B2B: We will provide animation and advertisement services to other businesses that want to promote their products or services with high-quality content that stands out from the crowd.
 * B2G: We will offer educational animations for children, partnering with government and public institutions to provide engaging content that helps kids learn and explore new ideas.
-* B2B2B2C: We will work with multiple parties in a supply chain to deliver products or services to end customers. This involves collaborating with businesses that sell our products to other businesses or institutions, who then offer our products to individual customers.
+* B2B2C: We will work with multiple parties in a supply chain to deliver products or services to end customers. This involves collaborating with businesses that sell our products to other businesses or institutions, who then offer our products to individual customers.
 
 My goal is to establish this company as a major player in the entertainment and advertisement industry, with a strong focus on quality and creativity. With a team of experienced professionals and a commitment to innovation, I’m confident that Tales & Realms will capture the hearts and imaginations of customers across a wide range of markets.
 
