@@ -4,6 +4,9 @@ Tales & Realms
 
 Journey beyond reality
 
+Pitch Deck(I'm still editing it but you can have a look)
+https://docs.google.com/presentation/d/1--ozkkmmmEBy1IGRsgn_098aRE3A1e5D8fO9vB3ejJs/
+
 Business Type: 
 * B2C
 * B2B
