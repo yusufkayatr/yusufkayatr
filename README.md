@@ -1,4 +1,4 @@
-concept start up waiting for an angel investor
+concept start up waiting for an equity investor
 
 Tales & Realms Studios
 
