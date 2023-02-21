@@ -1,6 +1,6 @@
 pre-seed start up waiting for an investor
 
-Tales & Realms
+Tales & Realms Studios
 
 Journey beyond reality
 
@@ -21,12 +21,10 @@ Tales & Realms is an upcoming startup that specializes in creating unique and en
 
 My goal is to establish this company as a major player in the entertainment and advertisement industry, with a strong focus on quality and creativity. With a team of experienced professionals and a commitment to innovation, I’m confident that Tales & Realms will capture the hearts and imaginations of customers across a wide range of markets.
 
-Tales & Realms is a pre-seed startup that aims to bring exciting and innovative comic books, animation movies, and advertising solutions to the market. The company aims to adapt to the rapidly changing world and embrace new technologies, such as Web 3.0 and virtual reality, 3D displays, to provide unique experiences for its customers. Tales & Realms plans to conduct thorough market analysis and learn from both successful and unsuccessful projects to differentiate its offerings and increase its success rate. The company plans to work directly with customers to gauge their expectations and test new ideas through crowdfunding for upcoming projects (e.g on indiegogo) and perks for pre-orders.
-In its first year, Tales & Realms will have a team of experts, including an illustrator, story writer/script writer, animator/animation designer, marketing and social media specialist. As the company grows, it plans to expand its team to include a graphic designer, market research analyst, business development manager, creative director, finance manager, and office clerk. The company is seeking a pre-seed investment of €500,000 in exchange for 30% ownership of the company to kickstart its operations and hire staff.
 
 Overall, Tales & Realms aims to bring fresh and engaging content to the market by using new technologies and working directly with customers to deliver what they want.
 
-Tales & Realms aims to become a leading provider of comic books, animation movies, and latest technology advertising solutions. The company aims to adapt to the rapidly changing media landscape and capitalize on the opportunities presented by the emergence of Web 3.0,  growing virtual reality and 3D display industry.
+Tales & Realms aims to become a leading provider of comic books, animation movies, latest technology advertising solutions. The company aims to adapt to the rapidly changing media landscape and capitalize on the opportunities presented by the emergence of Web 3.0,  growing virtual reality and 3D display industry.
 
 My main focus is on developing a series of comic books that will serve as the foundation for the animation movies I plan to create. I believe that by creating a compelling universe of characters and stories, we can establish a loyal fan base that will support our efforts to expand into new media platforms.
 
@@ -40,7 +38,6 @@ In addition to this advertisement campaign I already have animation scenarios th
 
 I’m a 27-year-old former manager in IT industry and have a keen interest to latest technologies. I’m experienced as a team manager plus I’m good at managing the team’s abilities. I am also good at providing a warm working environment regardless of race, sex and ethnicity. 
 
-I have a friend who lives in United States and ready to work with me on this project as a comic book writer/illustrator. If you would like to invest less than I mentioned earlier I can start to make this project just with her and freelance workers from the sector. I can offer 10% ownership in exchange for €170,000. Then you can have a chance to increase the amount your investment. But I need to mention more the team member faster to grow the company. 
 
 Yusuf Kaya ~ Founder
 Tales & Realms
