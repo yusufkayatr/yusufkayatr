@@ -1,6 +1,6 @@
 concept start up waiting for an equity investor
 
-Tales & Realms Studios
+Tales & Realms Studios + ARchive Social Media Platform
 
 Journey beyond reality
 
